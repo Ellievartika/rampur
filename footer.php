@@ -42,7 +42,7 @@
               उत्तर प्रदेश, भारत<br>
               <br>
               <strong>Phone:</strong> +91 8938953372, 8287243859<br>
-              <strong>Email:</strong>office.bjpsambhal@gmail.com<br>
+              <strong>Email:</strong>office.bjprampur@gmail.com<br>
             </p>
           </div>
 
